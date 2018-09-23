@@ -1,0 +1,1 @@
+# Denklem-Grafikleri
